@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Amanda
+- 👀 Your new Sr. Compliance Analyst
